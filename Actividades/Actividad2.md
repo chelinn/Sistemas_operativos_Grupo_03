@@ -1,4 +1,4 @@
-📌 Entregable 2 – Sistemas Operativos
+📌 Entregable 2 – Sistemas Operativos: 
 
 Hola, profesor. Comparto el enlace correspondiente a mi Entregable 2 de Sistemas Operativos:
 
