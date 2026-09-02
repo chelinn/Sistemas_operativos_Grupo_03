@@ -3,4 +3,4 @@
 - Saori Jimenez
 - Diego Murga
 - Cesar Milla
-- Anderson Delerna kuang
+- Anderson Delerna
